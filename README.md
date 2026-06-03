@@ -1,1 +1,1 @@
-# Abdullo-va-o-zim
+# Abdullo
